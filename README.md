@@ -17,7 +17,7 @@ https://www.vitoria-gasteiz.org/
 * http://www.muralismopublico.com/
 
 ### TEDxVitoriaGasteiz 
-* tedxvitoriagasteiz.com/
+* http://tedxvitoriagasteiz.com/
 
 ## Festivales
 * https://www.jazzvitoria.com/
